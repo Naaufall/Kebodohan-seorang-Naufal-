@@ -1,0 +1,1 @@
+# Kebodohan-seorang-Naufal-
